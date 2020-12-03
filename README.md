@@ -1,2 +1,0 @@
-# synoniem-popmuziek
-zelfmoord artiesten
